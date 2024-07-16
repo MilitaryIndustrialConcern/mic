@@ -1,1 +1,1 @@
-mic.com
+mic.su
