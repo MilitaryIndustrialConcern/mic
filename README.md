@@ -1,1 +1,1 @@
-mic.github.io
+mic.su
